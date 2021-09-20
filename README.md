@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @vtan3003
-- 👀 I’m interested in learning everything!
+- 👀 I’m interested in Photoshop, Concept Art, Character Design, Illustration!
 - 🌱 I’m currently learning 3D softwares, Concept Art
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: 
